@@ -1,4 +1,4 @@
-# 爱搞机的学生_XUESHENG的博客 :link: https://bilixuesheng.github.io/xuesheng.github.io 
+# 爱搞机的学生的博客 :link: https://bilixuesheng.github.io/xuesheng.github.io 
 ### :page_facing_up: [1](https://bilixuesheng.github.io/xuesheng.github.io/tag.html) 
 ### :speech_balloon: 0 
 ### :hibiscus: 208 
